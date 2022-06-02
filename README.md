@@ -1,1 +1,1 @@
-# -Xiaomi-Himo-Bike
+# -Xiaomi-Himo-Bike мой учебный проэкт!!!
